@@ -1,1 +1,12 @@
-# portfolio
+# Data Scientist
+
+### Education 
+
+
+### Work experience 
+
+
+### Projects 
+
+
+# Skils
